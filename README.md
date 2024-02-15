@@ -1,4 +1,4 @@
-#Wzx|Lafite1341054
+#Wzx
 
 Codelab Club Account：<url>https://create.codelab.club/users/Wzx/
 
